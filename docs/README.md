@@ -1,3 +1,3 @@
-# **<font color='red'>刘贝嘉，Welcome！</font>**
+# **<font color='red'>Welcome！</font>**
 
 > 请多多指教~
